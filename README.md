@@ -6,9 +6,7 @@
 
 
 
-GO TO LINKS: https://github.com/TheProxyWarsCompany/Proxtopia/blob/main/links
+GO TO PROXY LINK SPEEDS : https://github.com/TheProxyWarsCompany/Proxtopia/blob/main/Proxy%20link%20speeds
 
-I AM OFFICIALLY RETIRED FAIRWELL!!! 
-😥
-
+YESSSSSSSSSSSSSS🔗
 
